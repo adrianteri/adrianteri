@@ -1,3 +1,3 @@
-## Adrianteri README
+Find me online as @adrianteri. Visit my website and blog [adrianteri.com](https://adrianteri.com).
 
-Find me at [Twitter](https://twitter.com/u/adrianteri). Also, coming soon Website and Blog [adrianteri.com](https://adrianteri.com).
+@adrianteri 2021.
