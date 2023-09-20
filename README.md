@@ -1,3 +1,3 @@
-Find me online as @adrianteri. Visit my website and blog [adrianteri.com](https://adrianteri.com).
+Find me online as @adrianteri. Visit my website and blog [awanderi.net](https://awanderi.net).
 
-@adrianteri 2021.
+@adrianteri 2023.
